@@ -1,0 +1,1 @@
+efeitoT2
